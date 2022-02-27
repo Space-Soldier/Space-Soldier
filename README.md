@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Space-Soldier
-- 👀 I’m interested in becoming a boss of a games whom makes all the desitions and also an employee who helps make the game, both at the same time.
-- 🌱 I’m currently learning Game Art, 3D Modeling, Models, Level Making, Manegement. 
+- 👀 I’m interested in becoming a boss of a game who makes all the desitions and also someone who helps make the game, both at the same time.
+- 🌱 I’m currently learning Concept Art, 3D Modeling, Models, Level Making, Manegement. 
 - 💞️ I’m looking to collaborate on Star Wars, Transformer or Online Multiplayer Games.
 - 📫 How to reach me: Email. Or my number in the near future.
 
